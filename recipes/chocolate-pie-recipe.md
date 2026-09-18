@@ -4,7 +4,7 @@
 
 ## Ingredients
 
-- 1 baked 9-inch pie crust
+- 1 9-inch pie crust
 - 1 cup granulated sugar
 - ¼ cup unsweetened cocoa powder
 - ¼ cup cornstarch or flour
