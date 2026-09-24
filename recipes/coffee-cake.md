@@ -70,3 +70,7 @@
 
 \- Sprinkle extra Heath toffee bits on top after baking for added crunch.
 
+\## Baking Tips
+
+\- Let the cake cool for 10 to 15 minutes before slicing to help it hold its shape.
+
