@@ -68,3 +68,5 @@
 
 \- Store leftovers in an airtight container for up to 3 days.
 
+\- Sprinkle extra Heath toffee bits on top after baking for added crunch.
+
